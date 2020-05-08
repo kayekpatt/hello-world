@@ -1,2 +1,6 @@
 # hello-world
-Hey, I am always willing to learn new things.
+
+Hi everyone,
+
+I'm Kaye and I enjoy keeping myself busy as well as listening to music..
+I have always enjoyed doodling on my computer.
